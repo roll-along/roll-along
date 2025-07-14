@@ -1,4 +1,4 @@
-vibri/jalya . i like tf2 and cosmos kingdom , im a chef there!
+vibri/jalya . i like tf2, ck, vx, crash bandicoot and rayman , im a chef in ck and nco in vx!
 
 check out my strawpage and atabook (pls) 
 
