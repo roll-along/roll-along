@@ -4,6 +4,7 @@ vibri/jalya . i like tf2, ck, vx, crash bandicoot and rayman , im a chef in ck a
 
 *check out my strawpage and atabook (pls)*
 
+![image alt](7rrmll.gif)
 
 
 ![image_alt](60a3a4272f9b2ee09c817d47785b9fda.gif)
