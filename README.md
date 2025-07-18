@@ -1,11 +1,13 @@
 ![image alt](7rrmll.gif)
 
 
-vibri/jalya . i like **tf2**, **vib ribbon**, ck, **vx**, **rgs**, crash bandicoot, rayman, **brewstew**, **vib ribbon gang!** im a chef in ck and nco in vx! and owner in rgs lol, im interested in more stuff too
+vibri/jalya . i like **tf2**, **vib ribbon**, **untitled tag game**, ck, **vx**, **rgs**, crash bandicoot, rayman, **brewstew**, **vib ribbon gang!** im a chef in ck and nco in vx! and owner in rgs lol, im interested in more stuff too
 
 if ur a tf2 or vib ribbon fan, expect me to follow u lol 😭
 
-*check out my strawpage and atabook (pls)*
+***no dni, i ignore or block freely (just dont be odd)***
+
+check out my strawpage and atabook
 
 
 ![image alt](7rrmll.gif)
