@@ -1,7 +1,7 @@
 ![image alt](7rrmll.gif)
 
 
-**vibri**/jalya/scout . i like **tf2**, **vib ribbon**, **ponytown regis**, ck, **vx**, **bear**, crash bandicoot, rayman, **brewstew**, **vib ribbon gang!** im a chef in ck and nco in vx! and owner in rgs lol, im interested in more stuff too
+**vibri**/jalya/scout . i like **tf2**, **vib ribbon**, **ponytown regis**, **evade**, **bear**, crash bandicoot, rayman, **brewstew**, **vib ribbon gang!** im a chef in ck and nco in vx! and owner in rgs lol, im interested in more stuff too
 
 if ur a tf2 or vib ribbon fan or bear, expect me to follow u lol 😭
 
