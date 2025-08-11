@@ -3,10 +3,11 @@
 
 **vibri**/jalya/scout . i like **tf2**, **vib ribbon**, **ponytown regis**, **object shows (mainly ii and bfdi)**, **bear alpha**, crash bandicoot, **rayman**, **brewstew**, **vib ribbon gang!** im interested in more stuff too
 
+im a sharing scout selfshipper or yumeshipper or whatever u guys call it
 
 no dni, i ignore or block freely, just dont be odd
 
-check out my strawpage (it's a bit old but whateverl
+check out my strawpage (it's a bit old but whatever)
 
 
 ![image alt](7rrmll.gif)
